@@ -1,8 +1,8 @@
 Welcome to Neo Soul DAO!
 
-As a pioneer in the culture, we invite you to be a part of the initial group being formed to grow and expand the DAO. Attached is a deck explaining the DAO and our mission. Please review and digest. 
+As a pioneer in the culture, we invite you to be a part of the initial group being formed to grow and expand the DAO. 
 
-Below please find a link to click to begin your journey. 
+Click the link below to click to your journey. 
 
 We look forward to you being a part of our family. 
 
