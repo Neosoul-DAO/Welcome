@@ -2,7 +2,7 @@ Welcome to Neo Soul DAO!
 
 As a pioneer in the culture, we invite you to be a part of the initial group being formed to grow and expand the DAO. 
 
-Click the link below to click to your journey. 
+Click the link below to begin your journey. 
 
 We look forward to you being a part of our family. 
 
