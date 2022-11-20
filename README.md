@@ -6,5 +6,9 @@ Click the link below to click to your journey.
 
 We look forward to you being a part of our family. 
 
+<p><a href="https://www.neosouldao.com">
+<img src="https://neosouldao.com/wp-content/uploads/2022/06/NSD-Stack-Logo.png" alt="neosoulddao.com" width="1000" height="732">
+</a></p>
 
-![NSD-Stack-Logo](https://user-images.githubusercontent.com/66292342/202887159-e6e121ee-76c2-4a66-a47e-34c75a551841.png)
+</body>
+</html>
